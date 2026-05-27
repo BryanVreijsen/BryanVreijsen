@@ -9,4 +9,4 @@ Gepassioneerd door het optimaliseren van bedrijfsprocessen middels AI en slimme 
 * **Procesoptimalisatie:** Van handmatig naar slim en digitaal.
 
 📍 Gevestigd in Tilburg
-🌐 [Bezoek mijn website] https://sites.google.com/view/bryanvreijsen
+🌐 [Bezoek mijn website] www.bryanvreijsen.nl
